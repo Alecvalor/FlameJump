@@ -1,3 +1,3 @@
-If you have any questions or problem about my App Flame jump contact me at :
+If you have any questions or problem about my App contact me at :
 
-akmeda.games@gmail.com
+volvagiagames@gmail.com
